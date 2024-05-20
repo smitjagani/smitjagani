@@ -41,5 +41,5 @@ Ready to collaborate on your next project? Let's connect!
 
 - Email: smitjagani263@gmail.com 📩
 - LinkedIn: [Smit Jagani 🔗](https://www.linkedin.com/in/smitjagani)
-- GitHub: @smitjagani 🐙
+- GitHub: [@smitjagani 🐙](https://github.com/smitjagani)
 - Looking forward to creating something amazing together! 🚀🌟
