@@ -40,6 +40,6 @@ Let's dive into some of the exciting projects I've had the pleasure of working o
 Ready to collaborate on your next project? Let's connect!
 
 - Email: smitjagani263@gmail.com 📩
-- LinkedIn: Smit Jagani 🔗
+- LinkedIn: [Smit Jagani 🔗](https://www.linkedin.com/in/smitjagani)
 - GitHub: @smitjagani 🐙
 - Looking forward to creating something amazing together! 🚀🌟
