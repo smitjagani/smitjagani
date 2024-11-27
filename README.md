@@ -1,4 +1,4 @@
-# Smit Jagani - Senior Flutter Developer
+# Smit Jagani - Flutter | Firebase | Node.js | Mongo | MySql
 👨‍💻🌟🚀 Hello and welcome! I'm Smit Jagani, a Senior Flutter Developer with a passion for crafting exceptional mobile experiences! 📱💡
 
 ## About Me 🙋‍♂️
